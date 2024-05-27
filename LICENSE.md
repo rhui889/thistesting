@@ -1,0 +1,1 @@
+openm to all
